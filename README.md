@@ -1,5 +1,4 @@
-![Renaissance_BLOG_BANNER_1](https://github.com/user-attachments/assets/a42d4f12-87df-4702-a33e-da64e9616446)
-
+![Renaissance_BLOG_BANNER_1](https://github.com/user-attachments/assets/d5977c00-4058-4f3e-99a6-4d7cd97b7041)
 > "I never let schooling interfere with my education."
 > — Mark Twain
 ___
